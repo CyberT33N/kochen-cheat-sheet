@@ -11,5 +11,5 @@
 4. steak in pfanne legen, wenn es an boden klebt solange liegen lassen bis es nicht mehr klebt
    - falls zu heiß rutner schraube
      - 1-2 Minuten
-5. steak mit pfanne in den backofen 10 - 15 minuten.
+5. steak mit pfanne in den backofen 10 - 15 minuten. **in alufolie einloegen und kräuterbutter drauf**
 6. steak würzen
