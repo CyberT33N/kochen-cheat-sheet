@@ -1,5 +1,7 @@
 # kochen-cheat-sheet
 
+<br><br>
+
 ## steak
 - Pfanne aus Gusseisen oder eisen
 - butterschmalz, erdnussöl oder rapsöl
@@ -13,3 +15,41 @@
      - 1-2 Minuten
 5. steak mit pfanne in den backofen 6-8 minuten. **in alufolie einloegen und kräuterbutter drauf**
 6. steak würzen
+
+
+
+
+
+
+
+
+
+
+
+
+<br><br>
+<br><br>
+______________________________________
+_______________________________________
+<br><br>
+<br><br>
+
+# Heilmittel
+
+## Natural
+
+### Schlaf probleme
+- Magnesium mangel
+  - Avocado
+
+### Energie probleme
+- Eisen Mangel
+  - rote rüben
+ 
+### Krank fühlen
+- Zink
+  - Kürbiskerne
+
+ ### Kopfschmerzen
+ - Natrium Mangel
+ -  Salz 
