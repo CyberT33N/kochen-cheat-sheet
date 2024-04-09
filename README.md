@@ -2,7 +2,14 @@
 
 <br><br>
 
-## steak
+
+
+
+# Rind
+
+<br><br>
+
+## Steak
 - Pfanne aus Gusseisen oder eisen
 - butterschmalz, erdnussöl oder rapsöl
 
@@ -15,6 +22,69 @@
      - 1-2 Minuten
 5. steak mit pfanne in den backofen 6-8 minuten. **in alufolie einloegen und kräuterbutter drauf**
 6. steak würzen
+
+
+
+
+
+
+
+<br><br>
+<br><br>
+
+## Gulasch
+
+<br><br>
+
+### Zutaten
+- Rindergulasch
+- Feingehackte Zwiebeln
+- Rinderbrühe
+- Sonnenblumenöl
+- Knoblauch
+- Tomatenmark
+- Paprika Pulver
+- Chilli
+- Salz & Pfeffer
+
+### Zubereitung
+
+#### Methode 1
+1. Sonnenblumeöl in hohe Pfanne. Boden gut bedeckt
+
+2. Boden bedecken mit fleisch und anbraten auf hohe Stufe und nicht direkt umdrehen
+- Wenn es sich vom Boden lsöt wenden
+  - Wenn beide Seiten angebraten sind, Fleisch rausnehmen
+    - ggf rest mit restliche Fleisch machen falls mehr vorhanden
+
+3. Herd auf mittlere Stufe und in den gleichen Topf Zwiebeln
+- Nach 1 Minute Knoblauch rein
+  - Insgesamt 3 Minuten dünsten
+
+4. Tomatenmark hinzufügen und einrühren
+- Dann Paprika Pulver und CHilli undd 30 Sekunden einrühren
+
+5. Rinderbrühe oder Gemüsebrühe oder Tomatensoße - Hälfte vom Topf
+- Salz und Pfeffer 
+
+7. Stufe 2 dann 2 Stunden mit Deckel
+
+8. Kurz bevor 2 Stunden Ende dann Nudeln oder Spätzle machen
+
+9. Wer will andicken mit Wasser und Mehl
+
+
+
+#### Method 2
+1. Erst scharf anbraten in Panne
+2. Zwiebel in Pfanne
+3. Würzen
+4. Ablöschen mit Brühe (Rinderbrühe oder Gemüsebrühe oder Tomatensoße)
+- Erst halbe Tasse und brutzeln (maximal stufe)
+  - Auf Stufe 3 runter drehen damit es leicht blubbert
+    - und dann noch die andere halbe tasse.  
+
+
 
 
 
