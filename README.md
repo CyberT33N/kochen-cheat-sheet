@@ -47,7 +47,13 @@
 - Chilli
 - Salz & Pfeffer
 
+
+<br><br>
+<br><br>
+
 ### Zubereitung
+
+<br><br>
 
 #### Methode 1
 1. Sonnenblumeöl in hohe Pfanne. Boden gut bedeckt
@@ -73,7 +79,7 @@
 
 9. Wer will andicken mit Wasser und Mehl
 
-
+<br><br>
 
 #### Method 2
 1. Erst scharf anbraten in Panne
