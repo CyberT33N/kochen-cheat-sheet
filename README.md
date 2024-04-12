@@ -193,3 +193,14 @@ _______________________________________
 ### Darmentgiftung
 - 1 löffel demeter chiasamen in großes glas mit 200ml wasser für 4 stunden in kühlschrank
   -dann rausnehmen und löffel rohhönig + halbe zitrone
+
+<br><br>
+
+### Lungen Reinigung
+1. Ginger in 5 pieces
+2. 1x  garlic cut in pieces
+3. 1x Onion in small piece3s
+4. Put all in pfanne mit 2 gläser wasser. Wenn wasser halb weg ist ist fertig
+5. dann dazu 1x löffel cayenne pfeffer und turmeric
+6. Jeden morgen 3x Löffel davon
+
