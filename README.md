@@ -160,20 +160,36 @@ _______________________________________
 
 # Heilmittel
 
+<br><br>
+
 ## Natural
+
+<br><br>
 
 ### Schlaf probleme
 - Magnesium mangel
   - Avocado
 
+<br><br>
+
 ### Energie probleme
 - Eisen Mangel
   - rote rüben
+
+<br><br>
  
 ### Krank fühlen
 - Zink
   - Kürbiskerne
 
+<br><br>
+
  ### Kopfschmerzen
  - Natrium Mangel
- -  Salz 
+ -  Salz
+
+<br><br>
+
+### Darmentgiftung
+- 1 löffel demeter chiasamen in großes glas mit 200ml wasser für 4 stunden in kühlschrank
+  -dann rausnehmen und löffel rohhönig + halbe zitrone
