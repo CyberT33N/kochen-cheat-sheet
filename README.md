@@ -170,11 +170,29 @@ _______________________________________
 - Magnesium mangel
   - Avocado
 
+
+<br><br>
+
+### Parasiten
+- Papaya
+
+<br><br>
+
+### Genital
+- Wassermelone
+  
+<br><br>
+
+### Akne
+- Ananas
+
 <br><br>
 
 ### Energie probleme
 - Eisen Mangel
   - rote rüben
+
+- Bananen
 
 <br><br>
  
