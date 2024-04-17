@@ -149,12 +149,95 @@ _______________________________________
 
 
 
+<br><br>
+<br><br>
+______________________________________
+_______________________________________
+<br><br>
+<br><br>
+
+
+# Kohlenhydrate Quellen
+
+- yam wurzel
+  - asi markt oder afro shop
+
+- buchweizen
+
+- hirse flocken 
+
+- kochplantin
+- imker hönig
+- apfel
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 <br><br>
 <br><br>
 ______________________________________
 _______________________________________
+<br><br>
+<br><br>
+
+# Vitamine
+- yam wurzel
+
+
+
+
+
+
+
+# Mineralstoff
+
+<br><br>
+
+## Natural
+
+<br><br>
+
+### Magnesium
+- hirse flocken
+
+<br><br>
+
+### Kalium
+- hirse flocken 
+
+<br><br>
+
+### Eisen
+- yam wurzel
+- hirse flocken
+
+  
+<br><br>
+
+### Kupfer
+- yam wurzel
+
+
+
+
+
+
+
+
+
 <br><br>
 <br><br>
 
@@ -165,6 +248,47 @@ _______________________________________
 ## Natural
 
 <br><br>
+
+### Haare
+- hirse flocken
+  
+<br><br>
+
+### Nägel
+- hirse flocken
+  
+<br><br>
+
+### Schmerzstillend
+- kochplantin
+
+
+<br><br>
+
+### Leber
+- Apfel
+
+<br><br>
+
+### Entzündungshemmend
+- Imker Honig
+- kochplantin
+- buchweizen
+
+<br><br>
+
+### Diabtes
+- buchweizen
+
+
+<br><br>
+
+### Blutzuckerspiegel
+- buchweizen
+
+  
+<br><br>
+
 
 ### Schlaf probleme
 - Magnesium mangel
