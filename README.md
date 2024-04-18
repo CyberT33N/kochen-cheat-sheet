@@ -193,6 +193,29 @@ _______________________________________
 <br><br>
 <br><br>
 
+
+
+# Zuckerersattz
+- Erythrit
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 # Vitamine
 - yam wurzel
 
@@ -238,10 +261,24 @@ _______________________________________
 
 
 
+
+
+
+
+
+
+
+
+
+
+
 <br><br>
 <br><br>
 
 # Heilmittel
+
+
+
 
 <br><br>
 
@@ -293,7 +330,9 @@ _______________________________________
 ### Schlaf probleme
 - Magnesium mangel
   - Avocado
-
+- Melatonin
+- Baldrian
+- schlangenpflanze, spinnenpflanze, aloe vera pflanze
 
 <br><br>
 
