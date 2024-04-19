@@ -203,7 +203,9 @@ _______________________________________
 
 
 
-
+# Gesunde Fette
+- Oliven
+- Hasselnüsse
 
 
 
@@ -293,7 +295,12 @@ _______________________________________
 
 ### Nägel
 - hirse flocken
-  
+
+<br><br>
+
+### Immunsystem
+- rohe zwiebeln
+
 <br><br>
 
 ### Schmerzstillend
