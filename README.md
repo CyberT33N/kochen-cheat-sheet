@@ -309,14 +309,15 @@ _______________________________________
 ### Eisen
 - yam wurzel
 - hirse flocken
-
+- Grünkohl
   
 <br><br>
 
 ### Kupfer
 - yam wurzel
 
-
+### Calcium
+- Grünkohl
 
 
 
@@ -351,6 +352,9 @@ _______________________________________
 
 ### Haare
 - hirse flocken
+
+### Tränensäcke
+- Gurke
   
 <br><br>
 
@@ -379,18 +383,28 @@ _______________________________________
 - Imker Honig
 - kochplantin
 - buchweizen
+- Ingwer
 
 <br><br>
 
 ### Diabtes
 - buchweizen
 
+<br><br>
+
+### Zähne
+- Nelkenöl
 
 <br><br>
 
 ### Blutzuckerspiegel
 - buchweizen
 
+  
+<br><br>
+
+### Darm Renigung
+- Zitronenwasser
   
 <br><br>
 
@@ -424,6 +438,7 @@ _______________________________________
   - rote rüben
 
 - Bananen
+- Apfel
 
 <br><br>
  
