@@ -5,11 +5,22 @@
 
 
 
-# Rind
+# Frühstück
+
+## Option #1
+- Rührei mit spinat und vollkornbrot mit lachs
+
+
+
+
 
 <br><br>
+<br><br>
 
-## Steak
+# Mittag
+
+
+### Steak - Rind
 - Pfanne aus Gusseisen oder eisen
 - butterschmalz, erdnussöl oder rapsöl
 
@@ -36,7 +47,7 @@
 
 <br><br>
 
-### Zutaten
+## Zutaten
 - Rindergulasch
 - Feingehackte Zwiebeln
 - Rinderbrühe
@@ -51,11 +62,11 @@
 <br><br>
 <br><br>
 
-### Zubereitung
+## Zubereitung
 
 <br><br>
 
-#### Methode 1
+### Methode 1
 1. Sonnenblumeöl in hohe Pfanne. Boden gut bedeckt
 
 2. Boden bedecken mit fleisch und anbraten auf hohe Stufe und nicht direkt umdrehen
@@ -81,7 +92,7 @@
 
 <br><br>
 
-#### Method 2
+### Method 2
 1. Erst scharf anbraten in Panne
 2. Zwiebel in Pfanne
 3. Würzen
@@ -89,6 +100,25 @@
 - Erst halbe Tasse und brutzeln (maximal stufe)
   - Auf Stufe 3 runter drehen damit es leicht blubbert
     - und dann noch die andere halbe tasse.  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
