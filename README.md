@@ -399,6 +399,32 @@ _______________________________________
 
 <br><br>
 
+### Schwach
+- Zink
+
+
+<br><br>
+
+### Allergien
+- Schwarzkümmelöl
+
+<br><br>
+
+### Müde
+- Kokuswasser
+
+<br><br>
+
+### Unglücklich
+- Vitamin D
+
+<br><br>
+
+### Kopfschmerzen
+- Meersalzz
+
+<br><br>
+
 ### Haare
 - hirse flocken
 
