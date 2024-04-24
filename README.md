@@ -202,13 +202,17 @@ _______________________________________
   - raw honey
   - celery
   - raw carrot
-  - ginger
-  - prome grenat
-  - black seeds
-  - egg
+  - granatapfel
+  - schwarzkümmel
+  - eier
   - sea salt
   - cocnut oil
-
+  - ingwer
+  - avocado
+  - matcha
+  - dunkle schokolade
+  - lachs
+  - knoblauch
 
 
 
