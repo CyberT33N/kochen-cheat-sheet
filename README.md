@@ -69,6 +69,42 @@
 <br><br>
 
 
+# Lamm
+
+## Lamm-lachs
+
+Beim Anbraten von Lamm-Lachs ist es wichtig, die richtige Herdstufe zu wählen, um das zarte Fleisch perfekt zu garen und eine schöne Kruste zu bekommen. Hier eine einfache Schritt-für-Schritt-Anleitung:
+
+## 1. Herdstufe wählen
+Für Lamm-Lachs solltest du eine mittlere bis hohe Hitze wählen, um eine schöne Bräunung zu erzielen, ohne das Fleisch zu übergaren. Die empfohlenen Herdstufen sind:
+
+- **Stufe 7**: Mittlere Hitze – für ein kontrolliertes Anbraten ohne zu schnelles Bräunen.
+- **Stufe 8**: Hohe Hitze – für eine schnellere Kruste, aber achte darauf, dass das Fleisch nicht außen verbrennt.
+
+## 2. Öl in der Pfanne erhitzen
+Verwende ein hitzebeständiges Öl wie Olivenöl oder Butterschmalz, um den Lamm-Lachs anzubraten. Erhitze das Öl, bis es heiß ist, aber nicht raucht.
+
+## 3. Lamm-Lachs anbraten
+Lege den Lamm-Lachs in die Pfanne und brate ihn je nach Dicke **3-4 Minuten pro Seite** an, bis eine goldbraune Kruste entsteht. Lamm-Lachs sollte innen noch rosa und saftig sein, daher nicht zu lange braten.
+
+## 4. Lamm-Lachs nachziehen lassen
+Wie im Video gezeigt, kannst du den Lamm-Lachs nach dem Anbraten in eine Box legen und mit Alufolie abdecken, damit er nachzieht und gleichmäßig gart.
+Mit dieser Methode erzielst du einen perfekt zarten Lamm-Lachs!
+
+
+
+
+
+
+
+
+
+
+
+<br><br>
+<br><br>
+
+
 ### Steak - Rind
 - Pfanne aus Gusseisen oder eisen
 - butterschmalz, erdnussöl oder rapsöl
