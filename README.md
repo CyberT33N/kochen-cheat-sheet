@@ -65,6 +65,33 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+<br><br>
+<br><br>
+______________________________________
+_______________________________________
+<br><br>
+<br><br>
+
+
+
+
+
+
+
+
+
+
+
 <br><br>
 <br><br>
 
@@ -101,8 +128,69 @@ Mit dieser Methode erzielst du einen perfekt zarten Lamm-Lachs!
 
 
 
+
+
+
+
+
 <br><br>
 <br><br>
+
+# Rind
+
+<br><br>
+
+
+
+
+## Rinder Bug - Rinderbraten
+
+
+### Zutaten
+- 1,5 kg Rinderbug
+- 2 Zwiebeln
+- 2 Karotten
+- 1 Stück Sellerie
+- 3 Knoblauchzehen
+- 500 ml Rinderfond
+- 200 ml Rotwein
+- 2 EL Tomatenmark
+- 2 EL Öl
+- Salz, Pfeffer
+- Lorbeerblätter, Thymian
+
+## Zubereitung
+1. **Vorbereitung**  
+   Rinderbug mit Salz und Pfeffer würzen. Gemüse schälen und grob würfeln.
+
+2. **Anbraten**  
+   Öl in einem Bräter erhitzen. Fleisch von allen Seiten scharf anbraten, dann herausnehmen.
+
+3. **Gemüse anrösten**  
+   Zwiebeln, Karotten, Sellerie und Knoblauch im Bräter rösten. Tomatenmark dazugeben und kurz mitrösten.
+
+4. **Ablöschen**  
+   Mit Rotwein ablöschen, kurz einkochen lassen. Rinderfond hinzufügen und aufkochen.
+
+5. **Schmoren**  
+   Fleisch zurück in den Bräter geben. Kräuter hinzufügen. Zugedeckt bei 160 °C im Backofen ca. 2,5 Stunden schmoren.
+
+6. **Sauce verfeinern**  
+   Fleisch herausnehmen. Sauce durch ein Sieb passieren, nach Belieben abschmecken und eindicken.
+
+7. **Servieren**  
+   Rinderbraten in Scheiben schneiden und mit Sauce anrichten.
+
+## Tipp
+Dazu passen Klöße oder Kartoffelpüree und Rotkohl.
+
+Guten Appetit! 🍽️
+
+
+
+
+
+
 
 
 ### Steak - Rind
@@ -185,6 +273,9 @@ Mit dieser Methode erzielst du einen perfekt zarten Lamm-Lachs!
 - Erst halbe Tasse und brutzeln (maximal stufe)
   - Auf Stufe 3 runter drehen damit es leicht blubbert
     - und dann noch die andere halbe tasse.  
+
+
+
 
 
 
