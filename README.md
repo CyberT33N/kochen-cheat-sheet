@@ -95,12 +95,13 @@
 
 ##### Zubereitung
 1.  **Vorbereiten:** Steak ca. **30 Minuten vor dem Braten** aus dem Kühlschrank nehmen (Zimmertemperatur). Mit Küchenpapier trocken tupfen.
-2.  **Backofen vorheizen:** Auf **160 °C Umluft** vorheizen.
+2.  **Backofen vorheizen:** Auf **160 °C Umluft** vorheizen. **Oder Alternativ geht auf 110grad für 10 Minuten**.
 3.  **Pfanne erhitzen:** Öl in die Pfanne geben (Boden leicht bedeckt) und auf **hoher Stufe (`Stufe 9`)** erhitzen.
     *   *Hitzetest:* Mit der Zange eine Ecke des Steaks kurz ins Öl halten – es muss **zischen**.
 4.  **Anbraten:** Steak in die heiße Pfanne legen. **Warten**, bis es sich leicht vom Boden lösen lässt (klebt anfangs oft fest). Dann wenden. Pro Seite ca. **1-2 Minuten** scharf anbraten (je nach Dicke und gewünschter Kruste). Bei Bedarf Hitze etwas reduzieren.
 5.  **Im Ofen garen:** Das angebratene Steak (optional mit Kräuterbutter belegt) **in Alufolie wickeln** und für **5-6 Minuten** (je nach Dicke und gewünschtem Gargrad) in den vorgeheizten Backofen legen.
 6.  **Würzen & Ruhen:** Steak aus dem Ofen und der Folie nehmen. Erst **jetzt** mit Salz und Pfeffer würzen. Kurz ruhen lassen, dann anschneiden.
+
 
 #### Gulasch
 
