@@ -234,6 +234,33 @@ Wenn du unsicher bist, nimm lieber erst **1,5 TL**, verteile sie und schau:
 
 ---
 
+
+### **3. Heute die Hälfte essen – passt das zu der Anleitung?**
+
+Ja, das passt sehr gut. Hier, wie du es konkret machst:
+
+1. **Heute: ganz normal wie beschrieben garen**  
+   - Roastbeef **im Ganzen** salzen.  
+   - Rundum in der Edelstahlpfanne **auf allen Seiten** kräftig anbraten.  
+   - Im Ofen bei **100–110 °C** auf **ca. 66–68 °C Kerntemperatur** ziehen (du willst well done, mit Luft nach oben für das Erwärmen morgen).  
+   - 10–15 Minuten **ruhen lassen**.
+
+2. **Dann teilst du das Stück:**
+   - Nach der Ruhezeit schneidest du das Roastbeef **einmal in der Mitte durch**, sodass du **zwei Hälften** hast.
+   - **Hälfte 1 (für HEUTE):**
+     - Diese Hälfte schneidest du **sofort in Scheiben** (quer zur Faser) und isst sie warm – direkt vom Braten, ohne Mikrowelle.  
+   - **Hälfte 2 (für MORGEN):**
+     - Diese Hälfte lässt du **im Ganzen**.  
+     - Schnittfläche kannst du leicht mit etwas Öl/Butter bestreichen oder einfach gut abdecken, damit sie nicht austrocknet.  
+     - Dann zügig auf Raumtemperatur abkühlen lassen (max. ca. 1 Stunde) und **abgedeckt in den Kühlschrank** legen.
+
+3. **Morgen:**
+   - Die **aufbewahrte Hälfte** aus dem Kühlschrank holen.  
+   - **Quer zur Faser in 5–7 mm dicke Scheiben** schneiden.  
+   - Scheiben mit etwas Brühe/Bratensaft/Butter benetzen, abdecken.  
+   - In der Mikrowelle bei **200–300 W** in **kurzen Intervallen** (20–30 Sekunden, dann 10–15 Sekunden) **schonend erwärmen**, bis sie warm, aber nicht kochend heiß sind.
+
+
 ### **2.5 HEUTE – Abkühlen & Lagern (für morgen)**
 
 1. **Abkühlen auf Raumtemperatur**  
