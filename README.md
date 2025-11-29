@@ -114,6 +114,32 @@
      - Entweder **erst nach dem Garen** (damit er nicht verbrennt),  
      - oder sehr vorsichtig jetzt schon, wenn du Röstaromen vom Pfeffer magst.
 
+
+### **2. Was heißt „kräftig salzen“ genau? (Mengenangabe)**
+
+Du hast ca. **600 g Roastbeef**.
+
+- **Profi-Faustregel:**  
+  - **1,5–2 % Salz** vom Fleischgewicht.  
+  - Bei 600 g sind das ca. **9–12 g Salz**.
+- **In Teelöffeln (bei normal feinem Haushaltssalz):**
+  - 1 gestrichener TL = ca. **5–6 g**.  
+  - Also: **insgesamt etwa 1,5–2 gestrichene TL Salz für das ganze Stück**.  
+  - **NICHT** 1 TL pro Seite, das wäre deutlich zu viel (dann wärst du bei 4–6 TL).
+
+**So machst du es praktisch:**
+
+1. Miss dir z.B. **2 gestrichene TL Salz** in ein kleines Schälchen ab.  
+2. Verteile das Salz **rundum**:
+   - Oben, unten, beide Längsseiten, Stirnseiten.  
+3. Du SOLLST überall eine **sichtbare, aber dünne** Salzschicht sehen:
+   - Das Fleisch soll nicht „eingepackt“ sein in Salz,  
+   - sondern überall leicht bestreut – als ob du es „leicht schneebestäubst“.
+
+Wenn du unsicher bist, nimm lieber erst **1,5 TL**, verteile sie und schau:
+- Wenn es dir sehr wenig erscheint, den Rest noch vorsichtig ergänzen.  
+
+
 4. **Ofen vorheizen**  
    - Backofen auf **100–110 °C** (Ober-/Unterhitze oder Umluft) vorheizen.  
    - Niedrige Ofentemperatur = **weniger Austrocknung**, wichtig für **well done**.
