@@ -140,6 +140,35 @@ Wenn du unsicher bist, nimm lieber erst **1,5 TL**, verteile sie und schau:
 - Wenn es dir sehr wenig erscheint, den Rest noch vorsichtig ergänzen.  
 
 
+
+#### **b) Silberhaut / Sehne (sehr fest, glatt, „hautartig“)**
+
+- Sehr **hell weiß/perlmuttfarben**, wirkt wie eine **dünne, gespannte Folie/Haut**.  
+- Fühlt sich **hart und ledrig** an, du kannst sie **kaum eindrücken**.  
+- Wenn du versuchst, sie zu kauen, wird sie **zäh und gummig**.
+
+**Ideal (Profi-Variante):**
+
+- Ja, diese **Silberhaut SOLLTEST du vor dem Garen möglichst entfernen**, weil:
+  - Sie zieht sich beim Braten/Backen zusammen.  
+  - Sie macht den Rand zäh und kann das Fleisch leicht verformen.
+
+**Wie erkennst du, was du hast?**
+
+- **Finger-Test:**
+  - Wenn es **weich und fettig** ist → **Fett**, darf größtenteils dranbleiben.  
+  - Wenn es **hart, ledrig, glatt wie Folie** ist → **Sehne/Silberhaut**, möglichst **abtrimmen**.
+- **Messer-Test:**
+  - Silberhaut lässt sich **nicht einfach „wegdrücken“**, du musst sie flach mit einem scharfen Messer abschneiden.  
+
+**Wenn du unsicher oder noch nicht so geübt bist:**
+
+- Du **MUSST** es nicht perfekt parieren.  
+- Lieber **ein bisschen zu viel dranlassen** als zu tief ins Fleisch schneiden.  
+- Schlimmstenfalls hast du am Rand ein Stück, das du beim Essen einfach **auf dem Teller lässt** – nicht gefährlich, nur zäher.
+
+<br><br>
+
 4. **Ofen vorheizen**  
    - Backofen auf **100–110 °C** (Ober-/Unterhitze oder Umluft) vorheizen.  
    - Niedrige Ofentemperatur = **weniger Austrocknung**, wichtig für **well done**.
