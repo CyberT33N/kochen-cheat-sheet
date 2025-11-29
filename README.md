@@ -172,6 +172,9 @@ Wenn du unsicher bist, nimm lieber erst **1,5 TL**, verteile sie und schau:
 4. **Ofen vorheizen**  
    - Backofen auf **100–110 °C** (Ober-/Unterhitze oder Umluft) vorheizen.  
    - Niedrige Ofentemperatur = **weniger Austrocknung**, wichtig für **well done**.
+  
+   - Für dein Roastbeef (low & slow, saftig, well done, morgen nochmal aufwärmen) empfehle ich dir ganz klar:
+     → Ober-/Unterhitze, mittlere Schiene.
 
 5. **Equipment bereitstellen**  
    - Deine **Edelstahlpfanne**.  
