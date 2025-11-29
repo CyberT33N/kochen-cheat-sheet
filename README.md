@@ -56,7 +56,274 @@
 
 </details>
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+<br><br>
+<br><br>
+
+
+
+
 <details><summary>🐄 Rind</summary>
+
+
+
+
+# Roastbeef
+
+## **2. Vollständige, angepasste Anleitung – HEUTE braten & garen, MORGEN aufwärmen (100% vollständig)**
+
+### **2.1 Rahmenbedingungen (dein Setup)**
+
+- **Fleisch:** ca. **600 g Roastbeef**, eher quaderförmig/rechteckig (also mehrere Seitenflächen).  
+- **Ziel-Garstufe:** **well done** (durchgegart), aber **so weich/saftig wie möglich**, auch nach dem Aufwärmen morgen.  
+- **Heute:**  
+  - In der **Edelstahlpfanne** scharf anbraten.  
+  - Anschließend im **Backofen** langsam fertig garen.  
+  - Dann abkühlen lassen und im Kühlschrank lagern.  
+- **Morgen:**  
+  - Roastbeef **in Scheiben schneiden**.  
+  - Scheiben **schonend in der Mikrowelle** erwärmen.  
+
+---
+
+### **2.2 HEUTE – Vorbereitung (Mise-en-place)**
+
+1. **Fleisch temperieren**  
+   - Roastbeef **30–45 Minuten vor dem Braten** aus dem Kühlschrank nehmen.  
+   - Ziel: Das Innere soll nicht eiskalt sein → gleichmäßigere Garung.
+
+2. **Abtupfen**  
+   - Roastbeef rundum mit **Küchenpapier trocken tupfen**.  
+   - Trockene Oberfläche = bessere **Maillard-Reaktion** (Bräunung & Röstaromen).
+
+3. **Würzen**  
+   - Direkt vor dem Braten **rundum kräftig salzen**.  
+   - Pfeffer:  
+     - Entweder **erst nach dem Garen** (damit er nicht verbrennt),  
+     - oder sehr vorsichtig jetzt schon, wenn du Röstaromen vom Pfeffer magst.
+
+4. **Ofen vorheizen**  
+   - Backofen auf **100–110 °C** (Ober-/Unterhitze oder Umluft) vorheizen.  
+   - Niedrige Ofentemperatur = **weniger Austrocknung**, wichtig für **well done**.
+
+5. **Equipment bereitstellen**  
+   - Deine **Edelstahlpfanne**.  
+   - **Hoch erhitzbares Öl** (z.B. Rapsöl, Sonnenblumenöl, Butterschmalz).  
+   - Optional für mehr Aroma:
+     - 1–2 EL Butter  
+     - 1–2 zerdrückte Knoblauchzehen  
+     - 1–2 Zweige Thymian/Rosmarin  
+   - **Bratenthermometer** (Kerntemperaturfühler).  
+   - Eine **Auflaufform** oder ein kleiner Rost über einer Form für den Ofen.
+
+---
+
+### **2.3 HEUTE – Anbraten in der Edelstahlpfanne (2.2, mit deinem Stück)**
+
+**Ziel:** Rundum kräftige Bräunung für Geschmack und Struktur, ohne das Fleisch durch die Pfanne schon komplett zu garen.
+
+1. **Pfanne vorheizen**  
+   - Edelstahlpfanne auf dem Herd auf **hoher Stufe** (ca. 7–8 von 9) **leer** vorheizen.  
+   - 1–2 Minuten warten, bis sie wirklich heiß ist.
+
+2. **Öl zugeben**  
+   - Dünne Schicht Öl in die heiße Pfanne geben.  
+   - Öl leicht schwenken.  
+   - Wenn das Öl **dünnflüssig wird und leicht schimmert**, ist die Temperatur richtig.  
+   - Es darf leicht rauchen, aber nicht stark.
+
+3. **Fleisch einlegen – NICHT bewegen**  
+   - Roastbeef vorsichtig in die Pfanne legen.  
+   - **Sehr wichtig:** Die ersten **1–2 Minuten nicht bewegen**, sonst reißt die Kruste und es klebt leichter an.
+
+4. **Alle Seiten anbraten (deine Frage mit dem „Rechteck“)**  
+   Stell dir das Roastbeef als **Quader** vor – mehrere Seitenflächen:
+
+   - **Erste Seite (z.B. „oben“):**  
+     - 1,5–2 Minuten kräftig anbraten, bis eine **deutlich braune Kruste** sichtbar ist.
+   - **Stück mit einer Zange drehen:** nächste Seite.  
+   - **Alle vier „Hauptseiten“** (oben, unten, beide Längsseiten) jeweils ca. **1,5–2 Minuten** anbraten.  
+   - **Stirnseiten (die kleineren Enden):**  
+     - Jede Seite ca. **30–60 Sekunden** anbraten – kurz, aber deutlich bräunen.  
+
+   → So hast du insgesamt etwa **8–10 Minuten** Anbratzeit, abhängig von der Hitze.
+
+5. **Aromatisieren (optional, aber empfehlenswert)**  
+   - Gegen Ende der Anbratphase:
+     - 1–2 EL Butter in die Pfanne geben.  
+     - Knoblauch und Kräuter dazu.  
+   - Hitze leicht reduzieren (auf ca. 5–6 von 9).  
+   - Die schäumende Butter mit einem Löffel immer wieder über das Fleisch **übergießen** (frz. „arroser“).
+
+6. **Übergang in den Ofen**  
+   - Roastbeef aus der Pfanne nehmen und in die **Auflaufform** legen.  
+   - Falls du willst, die Butter, Kräuter und Knoblauch aus der Pfanne mit in die Form geben.  
+   - Jetzt das **Bratenthermometer** in die **Mitte des Fleischs** stecken (nicht durchstoßen, nicht zu nah an den Rand).
+
+---
+
+### **2.4 HEUTE – Im Ofen auf Kerntemperatur „well done, aber weich“ ziehen**
+
+**Ziel:** Heute so garen, dass du morgen nach dem Erwärmen in der Mikrowelle ein **well done Roastbeef** hast, das dennoch **so saftig und weich wie möglich** bleibt.
+
+1. **Ofentemperatur**  
+   - Ofen ist bereits auf **100–110 °C** vorgeheizt.  
+   - Niedrige Temperatur = langsames, gleichmäßiges Garen = weniger Austrocknen.
+
+2. **Kerntemperatur-Ziel HEUTE (mit Thermometer)**  
+   - Für dein Ziel (morgen nochmal in der Mikrowelle, well done) empfehle ich:  
+     - Roastbeef im Ofen auf **ca. 66–68 °C Kerntemperatur** ziehen.  
+     - **Bei 66–68 °C nimmst du es aus dem Ofen.**  
+   - Begründung:
+     - Beim **Ruhen** steigt die Temperatur noch um ca. **1–2 °C**.  
+     - Beim **schonenden Erwärmen morgen in der Mikrowelle** kommen noch ein paar Grad dazu.  
+     - So landest du effektiv im Bereich **70–75 °C** → das ist klar **well done**, aber ohne dass du das Fleisch heute schon „totkochst“.
+
+3. **Garzeit (ungefährer Rahmen)**  
+   - Bei 100–110 °C und 600 g Roastbeef kannst du grob mit **30–50 Minuten** rechnen, bis 66–68 °C erreicht sind.  
+   - Das ist abhängig von:
+     - Ofengenauigkeit  
+     - Fleischform (dicker/kompakter Block vs. eher flach)  
+   - **Wichtig:** Verlass dich **auf das Thermometer**, nicht auf eine fixe Zeit.
+
+4. **Ruhen lassen**  
+   - Roastbeef aus dem Ofen nehmen, Thermometer drin lassen (zum Beobachten).  
+   - Locker mit **Alufolie abdecken** (nicht luftdicht).  
+   - **10–15 Minuten ruhen lassen.**  
+   - In dieser Zeit:
+     - Verteilt sich der Fleischsaft.  
+     - Kerntemperatur steigt noch minimal an.
+
+---
+
+### **2.5 HEUTE – Abkühlen & Lagern (für morgen)**
+
+1. **Abkühlen auf Raumtemperatur**  
+   - Nach dem Ruhen: Roastbeef auf eine **Platte oder flache Schale** legen.  
+   - Nicht direkt heiß in eine dichte Box packen → Kondenswasser/Hygieneproblem.  
+   - **Maximal ca. 1 Stunde** bei Raumtemperatur abkühlen lassen.
+
+2. **Kühlen im Kühlschrank**  
+   - Wenn es nicht mehr heiß ist:  
+     - Roastbeef **luftdicht oder gut abgedeckt** in den Kühlschrank stellen.  
+   - So kannst du es **1–2 Tage** problemlos aufbewahren.
+
+3. **Wichtig:**  
+   - **Heute NICHT in Scheiben schneiden.**  
+   - Im Ganzen kühlen = **saftiger** und morgen **zarter**.
+
+---
+
+### **2.6 MORGEN – Schneiden & Mikrowelle**
+
+#### **2.6.1 Schneiden**
+
+1. Roastbeef direkt aus dem Kühlschrank holen.  
+2. Sehr wichtig: **Quer zur Faser schneiden** (nicht entlang der Muskelfasern).  
+   - Quer zur Faser = **deutlich zarteres Mundgefühl**, besonders wichtig bei **well done**.  
+3. **Scheibendicke für Mikrowelle:**  
+   - Ca. **5–7 mm dick** schneiden.  
+   - Zu dünn → trocknet schneller aus.  
+   - Zu dick → Kern wird in der Mikrowelle schwerer gleichmäßig warm.
+
+#### **2.6.2 Vorbereitung für die Mikrowelle**
+
+1. **Teller vorbereiten**  
+   - Scheiben **einlagig** (ohne Stapel) auf den Teller legen.  
+   - Optional kannst du leicht überlappen, aber nicht dick übereinander schichten.
+
+2. **Feuchtigkeitsschutz (wichtig gegen Austrocknen)**  
+   - Jede Scheibe leicht mit einer der folgenden Optionen benetzen:
+     - Etwas **Fleischsaft/Bratensaft**, falls vorhanden.  
+     - Ein paar Löffel **Rinderbrühe**.  
+     - Etwas **Butter** oder ein wenig Öl.  
+   - Ziel: Eine **dünne Feuchtigkeitsschicht**, damit die Mikrowelle das Fleisch nicht austrocknet.
+
+3. **Abdecken**  
+   - Teller mit **Mikrowellenhaube** oder mit **Frischhaltefolie** (mit 1–2 kleinen Löchern) abdecken.  
+   - So bleibt die Feuchtigkeit am Fleisch und verteilt sich im Dampf.
+
+#### **2.6.3 Erwärmen in der Mikrowelle (schonend)**
+
+1. **Leistung (Wattzahl)**  
+   - Stelle die Mikrowelle auf **niedrige Leistung**, ca. **200–300 W**.  
+   - Hohe Leistung (z.B. 700–1000 W) würde dir die Ränder schnell **trocken und zäh** machen.
+
+2. **Erwärmungs-Intervalle**  
+   - Zuerst **20–30 Sekunden** laufen lassen.  
+   - Dann:
+     - Teller herausnehmen.  
+     - Temperatur der Scheiben prüfen (Finger oder Gabel).  
+   - Wenn noch zu kalt:
+     - In **10–15-Sekunden-Schritten** weiter erwärmen, immer bei **niedriger Wattzahl**.
+
+3. **Zielzustand**  
+   - Das Fleisch soll **angenehm warm**, aber **nicht kochend heiß** sein.  
+   - Du wirst merken:  
+     - Sobald es sehr heiß wird, trocknet es schlagartig nach – deshalb nur so warm machen, wie du es zum Essen brauchst.
+
+---
+
+### **2.7 Servierideen (optional, aber passend zu well done)**
+
+- **Klassisch warm:**  
+  - Roastbeefscheiben mit etwas **eigener Jus / Brühe**,  
+  - Dazu z.B. Kartoffelpüree, Gemüse, gebratene Zwiebeln.
+- **Halb-warm / lauwarm:**  
+  - Scheiben nur leicht anwärmen, dann mit einem **kräftigen Jus oder einer Pfeffersauce** servieren.
+- **Kalt (falls du es nicht erwärmst):**  
+  - Dünn geschnitten, mit Remoulade, Bratkartoffeln oder auf Brot – wie klassisches „Roastbeef kalt“.
+
+---
+
+## **Kurz-Zusammenfassung (für dein Vorhaben)**
+
+- **Heute:**  
+  - Roastbeef im **Ganzen** lassen.  
+  - In der **Edelstahlpfanne alle Seiten** (oben, unten, beide Längsseiten, Stirnseiten) kräftig anbraten.  
+  - Im **Ofen bei 100–110 °C** auf **ca. 66–68 °C Kerntemperatur** ziehen, dann herausnehmen.  
+  - 10–15 Minuten ruhen lassen, abkühlen, **im Ganzen** gut abgedeckt im Kühlschrank lagern.
+
+- **Morgen:**  
+  - Roastbeef **quer zur Faser in 5–7 mm Scheiben** schneiden.  
+  - Scheiben mit etwas Flüssigkeit (Bratensaft/Brühe/Butter) auf Teller legen, abdecken.  
+  - In der Mikrowelle bei **200–300 W** in kurzen Intervallen (20–30 s, dann 10–15 s) nur **schonend erwärmen**, bis sie warm, aber nicht „totgekocht“ sind.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+<br><br>
+<br><br>
+
+
 
 #### Rinderbraten (Schmorbraten aus Rinderbug)
 
